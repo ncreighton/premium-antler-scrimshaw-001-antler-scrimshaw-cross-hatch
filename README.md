@@ -1,0 +1,2 @@
+# premium-antler-scrimshaw-001-antler-scrimshaw-cross-hatch
+Juggling multiple antler scrimshaw projects without losing track of designs, patterns, and client details? The Antler Scrimshaw &amp; Cross Hatch Craft Hub eliminates scattered notes and lost inspiration by centralizing your entire creative workflow in one beautiful, organized Notion workspace.  This isn't just another template—it's a purpose-built com
